@@ -8,6 +8,6 @@ call me whatever . he / any . adult #ILMBF
       <br>
       i need art moots bmf pls
   <p align="center" dir="auto">
-w2i always, c*h freely
+w2i always , c*h freely
 <br>
-not my main, ask 4 socials tho :o)
+not my main , ask 4 socials tho :o)
