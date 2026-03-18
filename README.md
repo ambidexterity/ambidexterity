@@ -3,6 +3,6 @@
     <p align="center" dir="auto">
 LOVE YOU STAIN HL2VRAI YOU BIG IDIOT !!
   <p align="center" dir="auto">
-w2i all the time, c*h freely
+w2i always, c*h freely
 <br>
 ask 4 socials :o)
