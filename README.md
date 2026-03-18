@@ -5,4 +5,4 @@ LOVE YOU STAIN HL2VRAI YOU BIG IDIOT !!
   <p align="center" dir="auto">
 w2i always, c*h freely
 <br>
-ask 4 socials :o)
+not my main, ask 4 socials tho :o)
