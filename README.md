@@ -7,7 +7,7 @@
   <p align="center" dir="auto">
 evil wokeman . he / any . adult #ILMBF
       <p align="center" dir="auto">
-      i need art moots bmf pls
+      i need art moots, bmf !!
     <br>
 w2i always , c*h freely :o)
 
