@@ -1,5 +1,5 @@
 <p align="center" dir="auto">
-<img width="300" height="400" alt="image" src="https://files.catbox.moe/545472.png" title="STINKY RAT GUY">
+<img width="600" height="500" alt="image" src="https://i1-e.pinimg.com/736x/71/d3/26/71d326fdc607ff75a82e60050dbff084.jpg" title="STINKY RAT GUY">
 
   <p align="center" dir="auto">
 evil wokeman . he / any . adult
