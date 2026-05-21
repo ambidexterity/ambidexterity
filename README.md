@@ -4,4 +4,4 @@
   <p align="center" dir="auto">
 evil wokeman . he / any . adult
       <p align="center" dir="auto">
-w2i always , c*h freely :o)
+w2i always, c*h freely :o)
